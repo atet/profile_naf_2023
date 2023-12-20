@@ -1,4 +1,4 @@
-# [atet](https://github.com/atet) / [**_profile_naf_compton_2023_**](https://github.com/atet/profile_naf_compton_2023/blob/main/README.md#atet--profile_naf_compton_2023)
+# [atet](https://github.com/atet) / [**_profile_naf_2023_**](https://github.com/atet/profile_naf_2023/blob/main/README.md#atet--profile_naf_2023)
 
 # [Athit Kao, PhD](https://www.athitkao.com)
 
